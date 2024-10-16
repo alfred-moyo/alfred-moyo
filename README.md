@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently working on using AI in agriculture.<br>👯‍♂️ I'm looking to collaborate with anyone who has the drive to make an impact.<br>🫱🏾‍🫲🏾 I'm looking for help with gigs and finding job opportunities.<br>🌱 I'm currently completing my final year as an undergrad.
+🔭 I'm currently working on using AI in agriculture.<br>👯‍♂️ I'm looking to collaborate with anyone who has the drive to make an impact.<br>🫱🏾‍🫲🏾 I'm looking for help with partnership and finding job opportunities.<br>🌱 I'm currently completing my final year as an undergrad.
 
 
 ## 🌐 Socials:

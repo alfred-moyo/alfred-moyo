@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently working on using AI in agriculture and web app creation.<br>👯‍♂️ I'm looking to collaborate with anyone who has the drive to make an impact.<br>🫱🏾‍🫲🏾 I'm looking for help with partnership and finding job opportunities.<br>🌱 I'm currently completing my final year as an undergraduate in Middlesex University.
+🔭 I'm currently working on using AI in agriculture and web app creation.<br>👯‍♂️ I'm looking to collaborate with anyone who has the drive to make an impact.<br>🫱🏾‍🫲🏾 I'm looking for help with partnership and finding job opportunities.<br>🌱 I'm currently completing my final year as an undergraduate.
 
 
 ## 🌐 Socials:
